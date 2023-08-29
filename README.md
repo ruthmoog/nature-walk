@@ -29,3 +29,12 @@ Rubbish bags should be left at the end location at the junction of Whitecliffe a
 The first part of the walk is more accessible with steps or a slope up the hill, and a wide gravel path which winds along our route. The latter part of the walk by the alotments has a style to climb over and a farely steep hill, and the rest of the track is wooded and can be difficult to walk on, so people should take care here. An alternative access point to avoid the styles is available on Whitecliffe road across from Garden City Corridor Park, which is on a slope. Alternatively the whitecliffe road is paved and the road passes the Castle Hill Garden City park with our ending point being the North corner of the junction of Whitecliffe and Southfleet roads.
 
 I recommend to do this walk in the direction outlined, as there can be a lot of rubbish in the wooded path from the allotments, so any heavy carrying can be done towards the end of the route.
+
+-----
+
+
+### Activity sheets from across the web
+
+- [Woodland Trust - Tree ID sheets (Leaves, Twigs, Blossom and catkins, Fruits nuts and seeds](https://www.woodlandtrust.org.uk/blog/2020/03/tree-id-kids/)
+- [Wildlife Trust - Spotting sheets (Moths, Bees, Butterflies, Fungi, Autumn leaves, Spiders, Galls, Finches](https://sussexwildlifetrust.org.uk/discover/go-wild-at-home/activity-sheets/spotting-sheets) and [more from the Wildlife Trust here](https://www.wildlifewatch.org.uk/activities)
+- [British Dragonfly Society - Damselflies in the garden PDF](https://british-dragonflies.org.uk/wp-content/uploads/2019/05/Exploring-Activity-Part-1.-Damselflies-in-the-garden-1.pdf) and [Dragonflies in the garden PDF](https://british-dragonflies.org.uk/wp-content/uploads/2019/05/Exploring-Activity-Part-2.-Dragonflies-in-the-garden.pdf)
